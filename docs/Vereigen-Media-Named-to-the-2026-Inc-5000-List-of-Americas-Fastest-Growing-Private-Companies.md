@@ -43,6 +43,8 @@ Its solutions include:
 - VM Engage
 - Event Registration
 
+![image](https://github.com/Vereigen-Media-LLC/Vereigen-Media-Press-Release/blob/main/images/Vereigen-Media-Ranks-No-648-on-the-2026-Inc-5000.jpg)
+
 ## Source
 
 Original announcement:
