@@ -6,6 +6,8 @@ Vereigen Media has been named the **Gold Stevie® Award winner in the Lead Gener
 
 The 2026 International Business Awards received more than 3,800 nominations from organizations worldwide across categories including management, marketing, public relations, product development, and technology.
 
+![image](https://github.com/Vereigen-Media-LLC/Vereigen-Media-Press-Release/blob/main/images/Vereigen-Media-Wins-Gold-Stevie-Award-for-Lead-Generation-Solution-in-2026-International-Business-Awards.jpg)
+
 ## Award Recognition
 
 - **Award:** Gold Stevie® Award
